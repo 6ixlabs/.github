@@ -1,1 +1,1 @@
-# Welcome to 6ix
+# Welcome to 6ixLabs
